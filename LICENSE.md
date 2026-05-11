@@ -1,4 +1,4 @@
-#  
+#  Experience brainrot evolution like never before with brainrot evolution updated Script, the #1 Script. Includes custom skins and infinite resources
 
 
 
